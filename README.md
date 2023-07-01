@@ -1,1 +1,0 @@
-# ilmusosialdanbudayadasar.github.io
